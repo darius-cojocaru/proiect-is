@@ -1,2 +1,0 @@
-# Proiect-IS
-# proiect-is
